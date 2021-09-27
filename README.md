@@ -1,5 +1,5 @@
 独学未経験にてエンジニア転職を目指し活動中です！<br>
-ポートフォリオ：[INTELIST（いんたりすと）](https://inte-list.com)
+ポートフォリオ：[INTELIST（いんたりすと）](https://inte-list.com)<br>
 twitter:[@rnosuke0611](https://twitter.com/rnosuke0611)
 
 #### 略歴
