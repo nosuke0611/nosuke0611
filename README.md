@@ -1,6 +1,6 @@
 独学未経験にてエンジニア転職を目指し活動中です！<br>
 ポートフォリオ：[INTELIST（いんたりすと）](https://inte-list.com)<br>
-Twitter：[@rnosuke0611](https://twitter.com/rnosuke0611)
+Twitter：[@rnosuke0611](https://twitter.com/rnosuke0611)<br>
 Wantedly：[中川龍之介](https://www.wantedly.com/id/nosuke0611)
 
 #### 略歴
